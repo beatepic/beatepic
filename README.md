@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @beatepic
+- 👀 I’m interested in splatoon, coding and drawing shtuff
+- 🌱 I’m currently learning godot
+- 📫 you can reach me by discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i like axolotls c:
